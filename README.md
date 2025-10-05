@@ -4,3 +4,9 @@
 # Zama56
 # Zama56-test
 # Zama679
+# Zama-tetsgk
+# Zama-tr
+# Zama56
+# Zama56
+# Zama56-test
+# Zama679
